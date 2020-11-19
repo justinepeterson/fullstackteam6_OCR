@@ -1,0 +1,1 @@
+# fullstackteam6_OCR
